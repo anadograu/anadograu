@@ -1,0 +1,4 @@
+- 👋 Oie, eu sou @anadograu
+- Estou fazendo um trabalho de escola através desse site
+- O trabalho pertence a diciplina de pensamento computacional
+- 💞
